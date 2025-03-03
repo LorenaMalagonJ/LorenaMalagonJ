@@ -12,7 +12,7 @@ I am passionate about business and how data-driven insights can empower smart de
 - **Team Leadership**: I have worked leading teams and supervising tasks in various projects. I was a **Site Supervisor** at Hardbody gyms in Bogotá, now known as **Athletic Gym**, where I managed teams and optimized operational processes.  
 
 🏆 **Leadership & Involvement**  
-- I am currently **developing a business idea** focused on studying the feasibility of geothermal energy in rural areas with inactive oil wells that hold significant potential. These areas face major electricity challenges, and the project aims to provide sustainable solutions for the surrounding communities. I am working on this innovation and entrepreneurship initiative alongside my project partner, as part of the activities at the Externadista Entrepreneurship Center.
+- **Innovative Project in Geothermal Energy** I am developing a business idea to explore the feasibility of geothermal energy in rural areas with inactive oil wells. This project aims to address electricity challenges and provide sustainable solutions for nearby communities, in collaboration with my project partner at the Externadista Entrepreneurship Center.
 
 📚 **Personal Projects & Interests**  
 - **Last year, I won the Hult Prize**, an international competition in which Universidad Externado participates. This year, I will represent the university at the regional level.  
