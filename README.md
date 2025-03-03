@@ -6,7 +6,7 @@ I am passionate about business and how data-driven insights can empower smart de
 🌱 **My Learning Journey**  
 - **Current Focus**: Business Analytics to uncover insights that drive impactful business decisions.  
 - **Professional Skills**: Developed through academic experiences and collaborations, where I’m honing my analytical and problem-solving skills to tackle complex business challenges.  
-- **Technical Skills**: Proficient in tools like Excel, Power BI and Python for data analysis and visualization.
+- **Technical Skills**: Excel proficiency, team leadership, understanding of artificial intelligence and its applications, problem-solving skills, and effective communication.
 
 💼 **Professional Experience**  
 - **Team Leadership**: I have worked leading teams and supervising tasks in various projects. I was a **Site Supervisor** at Hardbody gyms in Bogotá, now known as **Athletic Gym**, where I managed teams and optimized operational processes.  
