@@ -10,7 +10,6 @@ I am passionate about business and how data-driven insights can empower smart de
 
 💼 **Professional Experience**  
 - **Team Leadership**: I have worked leading teams and supervising tasks in various projects. I was a **Site Supervisor** at Hardbody gyms in Bogotá, now known as **Athletic Gym**, where I managed teams and optimized operational processes.  
-- I’ve developed a solid foundation in business through academic projects, internships, and collaborations with peers, learning to connect data with actionable strategies.
 
 🏆 **Leadership & Involvement**  
 - **Active participant in student clubs**, where I engage with like-minded individuals who are passionate about innovation and collaboration.  
