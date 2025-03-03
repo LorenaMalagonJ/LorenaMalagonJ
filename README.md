@@ -25,7 +25,7 @@ I’m looking to collaborate with passionate and visionary people who want to tu
 
 📫 **How to Reach Me**  
 - **Email**: ivonne.malagon@est.uexternado.edu.co  
-- **LinkedIn**: [linkedin.com/in/lorenamalagon](https://www.linkedin.com/in/lorenamalagon)
+- **LinkedIn**: [linkedin.com/in/lorenajimenez](https://www.linkedin.com/in/lorena-jimenez-902978352/)
 
 😄 **Pronouns**: She/Her  
 
